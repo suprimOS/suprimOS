@@ -1,0 +1,17 @@
+Im just stupid.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+yes
